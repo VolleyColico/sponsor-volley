@@ -1,4 +1,4 @@
-# sponsor-volley
+# Sponsorizzazioni stagione 2025-2026
 Progetto per promuovere le sponsorizzazioni sportive
 # Sponsor Volley  Colico asd
 
